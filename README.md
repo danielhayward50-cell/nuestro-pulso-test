@@ -1,1 +1,0 @@
-# nuestro-pulso-test
